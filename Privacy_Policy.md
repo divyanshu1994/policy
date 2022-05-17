@@ -1,0 +1,3 @@
+We do not collect any user information
+
+For any more information, please contact himdiv147@gmail.com
